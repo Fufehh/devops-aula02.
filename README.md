@@ -1,3 +1,3 @@
-Meryl Streep
-Anne Hathaway
-Emma Watson
+Meryl Streep  
+Anne Hathaway  
+Emma Watson  
